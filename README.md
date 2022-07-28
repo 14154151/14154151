@@ -1,0 +1,4 @@
+- 👋 ola, meu nome isinha22092007
+- 👀 meu interesse é poder sair com os meus amigos sempre que eu quiser
+- 🌱 atualmente eu estou aprendendo a programas no  GitHub
+- 💞️ amo abraços 
